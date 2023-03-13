@@ -1,1 +1,0 @@
-# practica_006D
